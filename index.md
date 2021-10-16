@@ -16,24 +16,24 @@ Sounding is an initiative aiming to bring sound-related artists and researchers 
 **Istanbul Soundwalk // Soundinit @ Route below ↡ (Istanbul, Turkey)**  
 13 September 2021   
 A soundwalk in Istanbul: Starting from Eminönü - Kadıköy ferry station Haliç shoreline (some parts could be in a Tram) → Eyüp → Pierre Loti  
-https://www.facebook.com/events/314247687167721
+[https://www.facebook.com/events/314247687167721]
 
 
 **Istanbul Soundwalk // Soundinit @ Route below ↡ (Istanbul, Turkey)**  
 21 August 2021  
 A soundwalk in Istanbul: Starting from Karaköy ferry station, the route will be Karaköy ferry station → Haliç Subway Bridge → IMÇ Bazaar → Vefa Bozacısı → Kalenderhane Camii (The Church of Theotokos Kyriotissa) → Kadınlar Pazarı → Fener → Karaköy ferry station.  
-https://www.facebook.com/events/388636376318198
+[https://www.facebook.com/events/388636376318198]
 
 **World Listening Day // Soundinit Soundwalk @ Route below ↡ (Istanbul, Turkey)**  
 18 July 2021  
 Soundwalk: Karaköy ferry station → Galata Bridge → Sarayburnu → Gülhane Park → Sultan Ahmet Square → Sirkeci → Galata Bridge → Galata Tower.  
-https://www.facebook.com/events/802173933809500  
-https://www.worldlisteningproject.org/world-listening-day-2021-global-events/
+[https://www.facebook.com/events/802173933809500]  
+[https://www.worldlisteningproject.org/world-listening-day-2021-global-events/]
 
 **Soundinit // Istanbul Soundwalk 1# @ Route below ↡ (Istanbul, Turkey)**
 8 June 2019  
 Soundwalk: Şişhane → İstiklal Street → Tarihi Galatasaray Hamamı → Karaköy  
-https://www.facebook.com/events/329481291055819/
+[https://www.facebook.com/events/329481291055819/]
 
  
 
