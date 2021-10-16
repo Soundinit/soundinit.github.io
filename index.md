@@ -16,7 +16,7 @@ Sounding is an initiative aiming to bring sound-related artists and researchers 
 **Istanbul Soundwalk // Soundinit @ Route below ↡ (Istanbul, Turkey)**  
 13 September 2021   
 A soundwalk in Istanbul: Starting from Eminönü - Kadıköy ferry station Haliç shoreline (some parts could be in a Tram) → Eyüp → Pierre Loti  
-[https://www.facebook.com/events/314247687167721]
+[(https://www.facebook.com/events/314247687167721)]
 
 
 **Istanbul Soundwalk // Soundinit @ Route below ↡ (Istanbul, Turkey)**  
