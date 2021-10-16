@@ -28,7 +28,7 @@ A soundwalk in Istanbul: Starting from Karaköy ferry station, the route will be
 [map]  
 [sound recording]
 
-**Soundinit // Istanbul Soundwalk 2: World Listening Day Event**  
+**Soundinit // Istanbul Soundwalk 2 // World Listening Day Event**  
 18 July 2021  
 Soundwalk: Karaköy ferry station → Galata Bridge → Sarayburnu → Gülhane Park → Sultan Ahmet Square → Sirkeci → Galata Bridge → Galata Tower.  
 [call for event](https://www.facebook.com/events/802173933809500)  
