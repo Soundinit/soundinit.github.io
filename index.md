@@ -30,7 +30,7 @@ Soundwalk: Karaköy ferry station → Galata Bridge → Sarayburnu → Gülhane 
 [https://www.facebook.com/events/802173933809500](https://www.facebook.com/events/802173933809500)  
 [https://www.worldlisteningproject.org/world-listening-day-2021-global-events/](https://www.worldlisteningproject.org/world-listening-day-2021-global-events/)
 
-**Soundinit // Istanbul Soundwalk 1# @ Route below ↡ (Istanbul, Turkey)**
+**Soundinit // Istanbul Soundwalk 1# @ Route below ↡ (Istanbul, Turkey)**  
 8 June 2019  
 Soundwalk: Şişhane → İstiklal Street → Tarihi Galatasaray Hamamı → Karaköy  
 [https://www.facebook.com/events/329481291055819/](https://www.facebook.com/events/329481291055819/)
