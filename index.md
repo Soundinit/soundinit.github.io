@@ -16,24 +16,24 @@ Soundinit is an initiative aiming to bring sound-related artists and researchers
 **Soundinit // Istanbul Soundwalk 4**  
 13 September 2021   
 A soundwalk in Istanbul: Starting from Eminönü - Kadıköy ferry station Haliç shoreline (some parts could be in a Tram) → Eyüp → Pierre Loti  
-[https://www.facebook.com/events/314247687167721](https://www.facebook.com/events/314247687167721)
+[call for event](https://www.facebook.com/events/314247687167721)
 
 
 **Soundinit // Istanbul Soundwalk 3**  
 21 August 2021  
 A soundwalk in Istanbul: Starting from Karaköy ferry station, the route will be Karaköy ferry station → Haliç Subway Bridge → IMÇ Bazaar → Vefa Bozacısı → Kalenderhane Camii (The Church of Theotokos Kyriotissa) → Kadınlar Pazarı → Fener → Karaköy ferry station.  
-[https://www.facebook.com/events/388636376318198](https://www.facebook.com/events/388636376318198)
+[call for event](https://www.facebook.com/events/388636376318198)
 
 **Soundinit Soundwalk 2 // World Listening Day Event**  
 18 July 2021  
 Soundwalk: Karaköy ferry station → Galata Bridge → Sarayburnu → Gülhane Park → Sultan Ahmet Square → Sirkeci → Galata Bridge → Galata Tower.  
-[https://www.facebook.com/events/802173933809500](https://www.facebook.com/events/802173933809500)  
-[https://www.worldlisteningproject.org/world-listening-day-2021-global-events/](https://www.worldlisteningproject.org/world-listening-day-2021-global-events/)
+[call for event](https://www.facebook.com/events/802173933809500)  
+[world listening day](https://www.worldlisteningproject.org/world-listening-day-2021-global-events/)
 
 **Soundinit // Istanbul Soundwalk 1**  
 8 June 2019  
 Route: Şişhane → İstiklal Street → Tarihi Galatasaray Hamamı → Karaköy  
-[https://www.facebook.com/events/329481291055819/](https://www.facebook.com/events/329481291055819/)
+[call for event](https://www.facebook.com/events/329481291055819/)
 
  
 
