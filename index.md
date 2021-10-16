@@ -7,7 +7,7 @@ title: About
 </p>
 -->
 
-Sounding is an initiative aiming to bring sound-related artists and researchers together, where they organize soundwalks and other sound-based events.
+Soundinit is an initiative aiming to bring sound-related artists and researchers together, where they organize soundwalks and other sound-based events.
 
 
 ### Events
