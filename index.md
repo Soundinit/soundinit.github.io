@@ -8,13 +8,13 @@ title: About
 
 ### Soundinit
 
-Soundinit is an Istanbul-based sound-focused artist initiative.
+Sounding is an initiative aiming to bring sound-related artists and researchers together, where they organize soundwalks and other sound-based events.
 
-[CONTACT](https://docs.google.com/forms/d/1bR_9Eoz-YTYKCCOFsM8smKg13FTl7b-ajXyIR4db9d0)
+[contact us](https://docs.google.com/forms/d/1bR_9Eoz-YTYKCCOFsM8smKg13FTl7b-ajXyIR4db9d0)
 
-[FACEBOOK](https://www.facebook.com/soundinit.istanbul) 
+[facebook](https://www.facebook.com/soundinit.istanbul) 
 
-[INSTAGRAM](https://www.instagram.com/sound.init) 
+[instagram](https://www.instagram.com/sound.init) 
 
 
 
