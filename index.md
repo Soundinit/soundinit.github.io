@@ -24,7 +24,7 @@ A soundwalk in Istanbul: Starting from Eminönü - Kadıköy ferry station Hali�
 A soundwalk in Istanbul: Starting from Karaköy ferry station, the route will be Karaköy ferry station → Haliç Subway Bridge → IMÇ Bazaar → Vefa Bozacısı → Kalenderhane Camii (The Church of Theotokos Kyriotissa) → Kadınlar Pazarı → Fener → Karaköy ferry station.  
 [https://www.facebook.com/events/388636376318198](https://www.facebook.com/events/388636376318198)
 
-**Soundinit Soundwalk 2// World Listening Day Event**  
+**Soundinit Soundwalk 2 // World Listening Day Event**  
 18 July 2021  
 Soundwalk: Karaköy ferry station → Galata Bridge → Sarayburnu → Gülhane Park → Sultan Ahmet Square → Sirkeci → Galata Bridge → Galata Tower.  
 [https://www.facebook.com/events/802173933809500](https://www.facebook.com/events/802173933809500)  
