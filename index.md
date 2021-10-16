@@ -2,9 +2,10 @@
 title: About
 ---
 
-<p align="center">
+<!--<p align="center">
   <img src="/images/world_listening_day_2021_soundwalk.jpg" style="width: 100%; max-width: 1040px; height: auto;" />
 </p>
+-->
 
 ### Soundinit
 
